@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-RIFM741206HDGVVG03
+RIFM741206HDGVVG03
